@@ -2,13 +2,12 @@
 
 ### Ceiling
 
-A damp patch or mark could mean a leak in the roof therefore:
+A damp patch or mark could mean a leak in the roof therefore if you notice any damp patches or marks:
 
-If you notice any damp patches or marks
-
-- contact your landlord
-- failure to do so could lead to costly repairs
+- contact your landlord immediately
 - do not perform any repairs yourself
+
+Failure to do so could lead to costly repairs.
 
 ### Windows
 

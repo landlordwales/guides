@@ -2,6 +2,8 @@
 
 ### Mould
 
+The following will help avoid mould:
+
 - wipe away water from worktops
 - ventilate the kitchen especially when cooking
 - use the extractor fan especially when cooking
