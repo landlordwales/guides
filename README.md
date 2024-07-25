@@ -14,7 +14,7 @@ If mould develops soak kitchen roll in clear bleach and leave on the affected ar
 
 #### Units & Worktops
 
-To prevent costly repairs to kitchen units and doors
+To prevent costly repairs:
 
 - regularly check the kitchen units for signs of water leaks
 
@@ -22,7 +22,7 @@ If leaks are observed contact your landlord immediately.
 
 #### Oven
 
-To prevent costly repairs to the oven:
+To prevent costly repairs:
 
 - Clean your oven every 12 months
 
@@ -42,7 +42,7 @@ The following will help avoid mould:
 
 #### Shower
 
-To avoid costly repairs never:
+To prevent costly repairs:
 
 - modify the shower in any way
 - or any part of the shower including the shower head
