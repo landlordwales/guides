@@ -1,32 +1,29 @@
 # Kitchen Guide
 
+### Mould
 
-Below is a guide that you may already be aware of however history has shown this is not always the case.
+- wipe away water from worktops
+- ventilate the kitchen especially when cooking
+- use the extractor fan especially when cooking
 
+If mould develops soak kitchen roll in clear bleach and leave on the affected area for a few hours and then wipe clean.
 
-Mould:
-
-To avoid mould wipe away water from worktops
-Ventilate the kitchen especially when cooking
-If mould develops soak kitchen roll in clear bleach and leave on the affected area for a few hours and then wipe clean
-
-Sink:
+### Sink
 
 To prevent costly repairs to kitchen units and doors
-Regularly check the kitchen units for signs of water leaks
-If leaks are observed contact your landlord
 
+- regularly check the kitchen units for signs of water leaks
 
-Oven:
+If leaks are observed contact your landlord immediately.
+
+### Oven
 
 To prevent costly repairs to the oven kitchen unit:
 
-Clean your oven every 6 to 12 months
+- Clean your oven every 6 to 12 months
 
-Extractor Fan:
+### Extractor Fan
 
 To ensure the extractor fan works efficiently:
 
-Replace the filters every 12 months
-
-
+- replace the filters every 12 months

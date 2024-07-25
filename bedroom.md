@@ -1,19 +1,17 @@
 # Bedroom Guide
 
-
-Below is a guide that you may already be aware of however history has shown this is not always the case.
-
-
-Ceiling:
+### Ceiling
 
 A damp patch or mark could mean a leak in the roof therefore:
 
-If you notice any damp patches or marks contact your landlord
-Failure to do so could lead to costly repairs
-Under no circumstances perform any repairs yourself
+If you notice any damp patches or marks
 
-Windows:
+- contact your landlord
+- failure to do so could lead to costly repairs
+- do not perform any repairs yourself
 
-Provide appropriate ventilation to avoid moisture build up. 
+### Windows
 
-If mould develops soak kitchen roll in clear bleach and leave for a few hours and then wipe clean
+- Provide appropriate ventilation to avoid moisture build up.
+
+If mould develops soak kitchen roll in clear bleach and leave for a few hours and then wipe clean.
