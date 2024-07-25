@@ -24,7 +24,7 @@ If leaks are observed contact your landlord immediately.
 
 To prevent costly repairs:
 
-- Clean your oven every 12 months
+- Clean the oven every 12 months
 
 #### Extractor Fan
 
@@ -38,6 +38,7 @@ The following will help avoid mould:
 
 - wipe away water from around the bath and basin
 - ventilate the bathroom especially when showering and bathing
+- turn on the extractor fan especially when showering and bathing
 - if mould develops soak kitchen roll in clear bleach and leave on the affected area for a few hours and then wipe clean
 
 #### Shower
