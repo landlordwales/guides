@@ -43,7 +43,7 @@ The following will help avoid mould:
 
 #### Shower
 
-To prevent costly repairs:
+To prevent costly repairs do not:
 
 - modify the shower in any way
 - or any part of the shower including the shower head
